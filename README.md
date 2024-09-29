@@ -1,2 +1,2 @@
-![](https://github.com/kur0gir1/gif/blob/main/dgs3oll-e6ca9307-9689-4cbb-9983-4f7039ed1468.gif)
+![](https://github.com/kur0gir1/gif/blob/main/d9tizot-d18df425-eff7-4611-8dca-48a0a97956a0.gif)
 
